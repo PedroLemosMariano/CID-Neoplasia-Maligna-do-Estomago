@@ -1,0 +1,1 @@
+# Idade-como-Fator-de-Mortalidade-por-Neoplastia-Maligna-do-Est-mago
